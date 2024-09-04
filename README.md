@@ -4,4 +4,6 @@ I am passionate about acquiring new knowledge, lovesports, thrive in team enviro
 
 ## 🌍 Let's Connect:
 - www.linkedin.com/in/gilad-gilboa
+- giladgi8@gmail.com
+  
 
